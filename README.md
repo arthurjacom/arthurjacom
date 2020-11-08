@@ -6,8 +6,8 @@ I have been **passionate about games** :video_game: since I was a child, but it 
 :video_game::broken_heart::computer: Now I'm a game designer student who fell **in love with AI** and **machine learning** and is looking for a way to reconcile my old passion with my new one! 
 
 
-####  Portifolio 
- [Linkedin](https://www.linkedin.com/in/arthur-jacom/) :white_small_square: 
+####  Reach me 
+ [**Linkedin**](https://www.linkedin.com/in/arthur-jacom/) :white_small_square: 
  [Behance](https://www.behance.net/arthurjacom1") :white_small_square: 
  [Pinterest](https://br.pinterest.com/arthurjacom1/) :white_small_square: 
  [Github](https://github.com/arthurjacom)
