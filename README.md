@@ -8,7 +8,5 @@ I have been **passionate about games** :video_game: since I was a child, but it 
 
 ####  Reach me on [**Linkedin**](https://www.linkedin.com/in/arthur-jacom/) 
  
- :video_game: [Behance](https://www.behance.net/arthurjacom1") :white_small_square: [Pinterest](https://br.pinterest.com/arthurjacom1/)
- 
- :computer: [Github](https://github.com/arthurjacom) :white_small_square: [Kaggle](https://www.kaggle.com/arthurjacom)
+ :video_game: [Behance](https://www.behance.net/arthurjacom1") :computer: [Github](https://github.com/arthurjacom) 
 
