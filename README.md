@@ -1,6 +1,6 @@
 #### Hi! :wave: 
 
-I'm not using github for now, if you want to contac me, please use the links down below!
+I'm not using github for now, if you want to contact me, please use the links down below!
 
 ####  Reach me on 
 
